@@ -1,1 +1,1 @@
-lkjsadflkjfl 
+Wonky Wilmer rushed home to the Coordinated Capsule Castle, but it was already too late--Tinker had the Wolfstone in hand, and even Brave Bob was too scared to stop him or her.
